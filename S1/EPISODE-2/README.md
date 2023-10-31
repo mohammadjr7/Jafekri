@@ -31,7 +31,7 @@
 
 این فکر کردنه ما از مغزمون می‌آد:
 #### ۱.۱.۱.۱- مغز انسان
-| ![Placeholder] |
+| ![مغز انسان](https://raw.githubusercontent.com/mohammadjr7/Jafekri/main/S1/EPISODE-2/Human%20Brain%20Structure.png) |
 |:--:| 
 | تصویر ۱.۱: مربع زندگی. |
 ##### ۱.۱.۱.۱.۱- مغز یادگیر/توصیف‌گر (Declarative)
