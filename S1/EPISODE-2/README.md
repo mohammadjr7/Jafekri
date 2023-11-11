@@ -1,6 +1,6 @@
 # Episode 02 - Escape Room Rules (قواعد بازی زندگی)
   
-[🎧 در کست‌باکس بشنوید](https://castbox.fm/episode/Episode-02---Escape-Room-Rules-(%D9%82%D9%88%D8%A7%D8%B9%D8%AF-%D8%A8%D8%A7%D8%B2%DB%8C-%D8%B2%D9%86%D8%AF%DA%AF%DB%8C)-id4857685-id481801949?country=it)
+[🎧 در کست‌باکس بشنوید](https://castbox.fm/episode/Episode-02---Escape-Room-Rules-(%D9%82%D9%88%D8%A7%D8%B9%D8%AF-%D8%A8%D8%A7%D8%B2%DB%8C-%D8%B2%D9%86%D8%AF%DA%AF%DB%8C)-id4857685-id481801949)
 
 <hr><br>
 
